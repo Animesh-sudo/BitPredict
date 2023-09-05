@@ -1,1 +1,1 @@
-# BitPredict
+# BitPredict 💰📈
